@@ -38,13 +38,13 @@ There is widespread consensus among those who stay awake in the American policy 
 
 Thus far, it is arguable that ISIS has been the most impactful and terrifying legacy of the US invasion in 2003. For many resources regarding the origins of this group as a result of previous warmaking, see:
 
-*[Jeremy Scahill on Democracy Now](http://www.democracynow.org/2014/10/3/jeremy_scahill_on_obamas_orwellian_war)
-*[Patrick Cockburn on Mother Jones](http://www.motherjones.com/politics/2014/08/how-us-helped-isis-grow-monster-iraq-syria-assad) 
-*[Ben Reynolds on the Diplomat](http://thediplomat.com/2014/08/iran-didnt-create-isis-we-did/)
-*[David Miliband concedes with humility](http://www.ibtimes.co.uk/iraq-war-created-isis-concedes-david-miliband-1460557)
-*[Nafeez Ahmed on Mint Press News](http://www.mintpressnews.com/west-created-isis/196488/)
-*[Tariq Ali and Patrick Cockburn on Counterpunch](http://www.counterpunch.org/2014/09/29/the-rise-of-isis-and-the-origins-of-the-new-middle-east-war/) and [Mike Whitney on Counterpunch](http://www.counterpunch.org/2014/10/06/americas-terrorist-academy-in-iraq-produced-isis-leaders/)
-*[Juan Cole on Informed Comment](http://www.juancole.com/2014/12/ceased-exist-again.html)
+* [Jeremy Scahill on Democracy Now](http://www.democracynow.org/2014/10/3/jeremy_scahill_on_obamas_orwellian_war)
+* [Patrick Cockburn on Mother Jones](http://www.motherjones.com/politics/2014/08/how-us-helped-isis-grow-monster-iraq-syria-assad) 
+* [Ben Reynolds on the Diplomat](http://thediplomat.com/2014/08/iran-didnt-create-isis-we-did/)
+* [David Miliband concedes with humility](http://www.ibtimes.co.uk/iraq-war-created-isis-concedes-david-miliband-1460557)
+* [Nafeez Ahmed on Mint Press News](http://www.mintpressnews.com/west-created-isis/196488/)
+* [Tariq Ali and Patrick Cockburn on Counterpunch](http://www.counterpunch.org/2014/09/29/the-rise-of-isis-and-the-origins-of-the-new-middle-east-war/) and [Mike Whitney on Counterpunch](http://www.counterpunch.org/2014/10/06/americas-terrorist-academy-in-iraq-produced-isis-leaders/)
+* [Juan Cole on Informed Comment](http://www.juancole.com/2014/12/ceased-exist-again.html)
 
 Do the American people want yet another open ended military conflict in the Middle East? Is anyone in US government thinking about the future consequences of this war? You tell us.    
 
